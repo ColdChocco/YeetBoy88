@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @YeetBoy88
+- 👀 I’m interested in video game designing.
+- 🌱 I’m currently learning video game design in Unity.
+- 💞️ I’m looking to collaborate on KNOWLEDGE
+- 📫 How to reach me my email.
